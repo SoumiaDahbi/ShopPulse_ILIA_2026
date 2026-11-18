@@ -1,0 +1,1 @@
+# ShopPulse_ILIA_2026
